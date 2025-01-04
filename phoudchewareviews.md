@@ -85,8 +85,8 @@ she couldnt hear me but I tried to tell 'er
 They cook it up here there is no one better
 
 
-![image](chanseattle1.png)
-![image](chanseattle2.png)
+![image](chanseattle1.jpg)
+![image](chanseattle2.jpg)
 
 
 ---
