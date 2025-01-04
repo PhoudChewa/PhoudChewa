@@ -131,9 +131,32 @@ The chicken was doused in honey as though bee hives had been tossed in relentles
 ![image](Papaya1.jpg)
 ![image](Papaya2.jpg)
 
+---
+
+**Blue Crab Seafood House: (4/5)**
+This is a MUST-TRY restaurant.
+
+Many painfully mistaken people on Yelp and Google Maps alike will say that this restaurant is overhyped, or that it is harboring and hiding hundreds of extremely small french soldiers.
+
+But the lips of those who tell and guard truth and integrity in the culinary world may remind you that many foolish Americans said the same of our beloved statue of liberty, whom hosted only 30 or so french soldiers, and they didn't even do that much!
+
+I can only await with bated breath the beautiful day that France finally recognizes Canada for its similar valor, and awards it a similar statue.
+The dishes I tried were the Lobster Pappardelle, The Romaine heart salad, and the Smash Cheeseburger.
+
+The first thing to note is the basic bread they brought with all seafood items. It was ludicrous. It drove me and my beloved band of trained mini-horses to near insanity, all of us fainting briefly upon trying the crispy, fluffy, decadent, buttery, garlic encrusted slices.
+
+The lobster pappardelle was a marriage of rich, tomato cream sauce, and fresh lobster and prawns. I like to imagine them all packed in an underwater club, with all the little critters dancing to barnacle songs, much like the beloved film, The Little Mermaid. Maybe instead of eating mindless creatures, relieved from a drab life by a merciful fisherman, I was eating happy shrimp, who died satisfied after a long night out.
+
+The Romaine Heart Salad was the most interesting blend of flavors of the night. It was sweet, piercingly tangy, and somehow so intense and nuanced that words escape me. The cheese was fresh, well held up, and complimentary to the crisp leaves of romaine.
+
+The Steamer Pot had a rich and amazing cioppeno base, and went amazingly with the mini-horse killing bread.
+
+The ambiance of the room was complicated. The wait staff was well intentioned but disorganized. They only gave us one napkin for a party of 17 mini horses and one human, and we needed to ask for utensils. When I cut the napkin into eighteenths, suddenly I was the bad guy??? You GAVE me the napkin, with a knife INSIDE it. Most mini-horses are not meat eaters, but they were difficult when asked about the vegan options.
+
+Upon asking for extra napkins, there was a steady stream of them, like a malfunctioning sushi conveyor belt, and by the end of the meal we couldn't even see the check under a sea of napkins. (photo attached)
 
 
-
+![image](BlueCrab.jpg)
 
 
 
