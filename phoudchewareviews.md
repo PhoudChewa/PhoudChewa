@@ -3,19 +3,22 @@
 
 
 
-**Mi Casa Mexicana: (5/5)**
+**Mi Casa Mexicana: (5/5)** - *Jan 27, 2023*
+
 I have to say, I've never been more thrilled walking into an establishment. The way the door closed behind me gave me a sense of being welcomed, like a weary traveler in a desert of hunger, being welcomed into the humble abode of an expert foodsmith. The well-filled pans clattering in the kitchen rung like the anvils of Mordor. as I received my steaming dish, I felt nothing but joy, my eyes tearing up and my mouth following in suit, making the third of these delighted senses. The salsa soaked the chips like the morning dew on a caterpillar's leaf. I came weary, left energized. came wanting, left satisfied. I came lonely, left with new friends. when I left leaving my plates empty felt as though I was leaving an old old army buddy that had tended to my wounds.
 
 
 ---
 
-**Cafe Biola: (4/5)**
+**Cafe Biola: (4/5)** - *Feb 15, 2023*
+
 Café Biola can only be described as a self portrait of a misunderstood artist on their deathbed. He certainly brings something special to the plate. The chow mein was a regrettable first impression, being some incredibly unseasoned dry noodles with some seemingly freeze dried veggies. The meal had highlights, such as the delicious chocolate chip cookies, and surprisingly unique and tasty pizza. One thing I value highly is creativity in pizza slices. The salad bar was a winner, with more lines of delectable vegetables than a farmers market in Houston Texas, the farmers market center of the world. The ranch dressing was also above expectations, which in my opinion is a heavy pin to knock, in the bowling game of culinary exploration. The clam chowder was brown. The hot vegetables was incredibly disappointing, with brussels sprouts that I'm pretty sure were made partly with Styrofoam. The waffle fries were decent, I could definitely imagine enjoying them but it wouldn't blow my mind. One thing I heavily regret not trying with the sandwich assembly area, where there were a plethora of sandwich modules that you had the option to assemble. It was quite extensive, and frankly quite impressive. I could imagine eating here if I went here for college, but I think they could do better in some sections. Go Wolverines!
 
 
 ---
 
-**The Fold craft pizza + kitchen: (4/5)**
+**The Fold craft pizza + kitchen: (4/5)** - *Jun 24, 2023*
+
 You might want to sit down, because its time I share with you the fascinating experience that can be found only at "The Fold".
 At the end of a long day, I feel as though their name must be indicative of the crucial folding mechanism of the figurative 700 page novel that may attempt to accurately describe the ambience of this establishment.
 To call the organization of this property and its employees anything less than an ENTERPRISE would be selling short their connection with the common, beautifully ignorant, local man.
@@ -29,7 +32,8 @@ In my deepest corner of my heart, I imagine that all of us are... somehow connec
 
 ---
 
-**Taqueria Picaro: (4/5)**
+**Taqueria Picaro: (4/5)** - *Jun 30, 2023*
+
 In this cruel game of trickery we call life, I feel as though I have been catfished. Like a gullible young man on a dating service, I was cheated out of the wonders I had expected from such a beautiful image. While everything looked appealing, and the ambiance was fine, the textures and flavors of the ingredients were generally disappointing.
 
 The sauces were good, and the ingredients tasted fresh, but everything felt kind of haphazard. My best guess is that the head chef, while extremely talented, is somewhat injured, perhaps limping from one station to another in the kitchen.
@@ -42,7 +46,8 @@ At the end of the day, it feels like they are just almost there, not quite finis
 
 ---
 
-**Di Fiora: (5/5)**
+**Di Fiora: (5/5)** - *Dec 16, 2023*
+
 *sniiiiifff*...Ahhh.... just as the italian name suggests, this restaurant's flavor is delicate, and "of the flower".
 Let's go back in time. In the late 1600s, Italian trade routes were expanding quickly. Almost... TOO quickly.
 
@@ -56,7 +61,8 @@ Overall, a heck of a restaurant! Let's put this thing in park.
 
 ---
 
-**Chan Seattle: (5/5)**
+**Chan Seattle: (5/5)** - *Apr 26, 2024*
+
 Nothing stings like the loss of a loved one.
 However, the bittersweet burn of leaving this house of flavor-art leaves that trophy highly contested.
 The marriage of all 7 corners of korea's agriculture and artistry made a tapestry mine eyes were made dull to have seen.
@@ -91,7 +97,8 @@ They cook it up here there is no one better
 
 ---
 
-**Tsillan Cellars: (5/5)**
+**Tsillan Cellars: (5/5)** - *Apr 28, 2024*
+
 tsillian cellars may have won best washington wine cellar in 2020, but this very day in 2024, they won the key to my heart.
 
 "and this is no easy task!"...my cruel and hardhearted bride of 36 years would tell you, sipping her Chateau St Michelle in her odd and ironic mason jar.
@@ -114,7 +121,8 @@ attached are a photo of aforementioned linguini, and a touching photo of Gary th
 ---
 
 
-**Papaya: (5/5)**
+**Papaya: (5/5)** - *Jul 10, 2024*
+
 OH WHAT A RESTAURANT!!
 
 If teeth are the arms of the mouth, I welcome this locale with open
@@ -133,7 +141,8 @@ The chicken was doused in honey as though bee hives had been tossed in relentles
 
 ---
 
-**Blue Crab Seafood House: (4/5)**
+**Blue Crab Seafood House: (4/5)** - *Jul 16, 2024*
+
 This is a MUST-TRY restaurant.
 
 Many painfully mistaken people on Yelp and Google Maps alike will say that this restaurant is overhyped, or that it is harboring and hiding hundreds of extremely small french soldiers.
@@ -160,7 +169,8 @@ Upon asking for extra napkins, there was a steady stream of them, like a malfunc
 
 ---
 
-**Taco Nazo: (5/5)**
+**Taco Nazo: (5/5)** - *Sep 15, 2024*
+
 You don't make a taco this devastating without making a few enemies, and by this logic, this authentic Mexican joint has got a lot to fear.
 
 Notorious for their flavors, they don't hold back. 
@@ -175,7 +185,8 @@ Please, visit Taconazo, and honor my loss. May God be with us all.
 
 ---
 
-**Bakers & Baristas: (4/5)**
+**Bakers & Baristas: (4/5)** - *Oct 13, 2024*
+
 My grandmother always told me that good food is made when the secret ingredient of love is used. This cafe uses a slightly less orthodox approach, their secret ingredient being distain and overconfidence.
 
 However, what they lack for in reasonable mindset and grandmotherly affection, they make up for in daring, bold flavors.
@@ -192,7 +203,8 @@ Perhaps this review would've scraped up a fifth star if I could remember the fac
 
 
 
-**Crawfish Chef Bellevue: (5/5)**
+**Crawfish Chef Bellevue: (5/5)** - *Dec 28, 2024*
+
 The history of American dining is one of previously reluctant ethnic inclusion, and resultant diversity in flavor palette.
 Crawfish Chef in Bellevue is a true example of the adorable idea-children America bore from the Conniving French Settlers of Nova Scotia's betrothal to Louisiana. Move aside tractors and embarrassing surrenders, the south and France have something new to their names!
 
