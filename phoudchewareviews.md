@@ -85,8 +85,11 @@ she couldnt hear me but I tried to tell 'er
 They cook it up here there is no one better
 
 
+![image](chanseattle1.png)
+![image](chanseattle2.png)
 
 
+---
 
 
 
@@ -113,7 +116,7 @@ The shrimp was delicious, and I recommend head on, as it carries a pertinent ban
 
 
 
-![image](photo.png)
+
 
 
 # Origin Story:
