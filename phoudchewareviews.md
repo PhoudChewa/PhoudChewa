@@ -91,6 +91,53 @@ They cook it up here there is no one better
 
 ---
 
+**Tsillan Cellars: (5/5)**
+tsillian cellars may have won best washington wine cellar in 2020, but this very day in 2024, they won the key to my heart.
+
+"and this is no easy task!"...my cruel and hardhearted bride of 36 years would tell you, sipping her Chateau St Michelle in her odd and ironic mason jar.
+
+The first thing I noticed was the twisted sliver of lemon upon my pasta. It felt like a physical metaphor for both my twisted expectations of italian cuisine, and twisted love for red vines! Hahahahaha.
+
+The scallops in my linguine were shockingly good, easily the best scallops I've ever had.
+
+The same goes for their massive prawns, all of which were piping hot and yet tender.
+
+The takeaway of the evening was as the old adage follows:
+A dead piranha doesn't eat much.
+
+every undertone in every dish was accented to perfection, and the main thesis statements of every dish were subtle. This created a beautiful dynamic range in the elegance of our stay, at Tsillians.
+
+attached are a photo of aforementioned linguini, and a touching photo of Gary the snail from Nickelodeon SpongeBob SquarePants.
+![image](TsillanCellars1.jpg)
+![image](TsillanCellars2.jpg)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 **Crawfish Chef Bellevue: (5/5)**
@@ -110,6 +157,8 @@ The shrimp was delicious, and I recommend head on, as it carries a pertinent ban
 "You don't know me, son!", I said intimidatingly in response to my waitress asking what spice level of the two boil sauces I wanted. Suffice it to say...I was sobbing and wailing loudly upon trying that sweet sweet sauce. The families around me stared in horror, as I molted, leaving behind my outer layer of skin and revealing my true form. Happy Crawfishing!
 
 10/10
+
+
 
 
 ---
