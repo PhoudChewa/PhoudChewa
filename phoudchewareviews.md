@@ -111,9 +111,25 @@ attached are a photo of aforementioned linguini, and a touching photo of Gary th
 ![image](TsillanCellars1.jpg)
 ![image](TsillanCellars2.jpg)
 
+---
 
 
+**Papaya: (5/5)**
+OH WHAT A RESTAURANT!!
 
+If teeth are the arms of the mouth, I welcome this locale with open
+teeth.
+
+If chickens are the eagles of the bird world... the crispy honey eagle with substituted fried rice was splendid.
+
+It's not often that an old dog like me feels my heart pumping with elation for new tricks, but something about a mysterious item on the wall made THIS canine's tail wag.
+
+it was something of a banjo/sitar halfbreed, blurring the line between American hillbillies, and India's subcontinental music scene.
+
+The chicken was doused in honey as though bee hives had been tossed in relentlessly with reckless abandon. If my hunger prior to this delicious adventure into the world of sustainance could be compared to a dehydrated fruit, I now feel akin to a plumb bursting with juice, drenching its surroundings.
+
+![image](Papaya1.jpg)
+![image](Papaya2.jpg)
 
 
 
