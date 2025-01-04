@@ -158,24 +158,37 @@ Upon asking for extra napkins, there was a steady stream of them, like a malfunc
 
 ![image](BlueCrab.jpg)
 
+---
 
+**Taco Nazo: (5/5)**
+You don't make a taco this devastating without making a few enemies, and by this logic, this authentic Mexican joint has got a lot to fear.
 
+Notorious for their flavors, they don't hold back. 
+Unfortunately, I attended this bombastic society of bold taste with a close friend, who is allergic to flavor. 
+I mixed up their epi pen with a glow stick, so as they passed away, it seemed like I was inappropriately partying with the cracking of the glow stick on their leg. 
+Again, I apologize for killing the vibe on September 6th, 2024.
 
+However, the restaurant is clean, popular, and DEFINITELY worth a visit. 
+While mourning a close friend, it can be nice to take refuge in an amazing burrito. The al pastor was well seasoned, and I thank Bessie for her contribution to my experience. "Mooo", I could almost hear he say, as I enjoyed the amazing rice and sauces joining her, by which the hot tortilla was packed.
 
+Please, visit Taconazo, and honor my loss. May God be with us all.
 
+---
 
+**Bakers & Baristas: (4/5)**
+My grandmother always told me that good food is made when the secret ingredient of love is used. This cafe uses a slightly less orthodox approach, their secret ingredient being distain and overconfidence.
 
+However, what they lack for in reasonable mindset and grandmotherly affection, they make up for in daring, bold flavors.
 
+I am known for my strong emotional control, yet even I can get overwhelmed by the sheer magnitude of a dish like the chicken sandwich these lowlifes gave me.
 
+The chicken sandwich was so good that the moment it hit my tongue, I forgot my name and slouched down into my seat, my eyes rolling back into my head like a decommissioned Navy Seal under sensory lockdown.
 
+Even now as I write this review, I write it as a husk of a man, devoid of character and meaning, living life fueled by deflated momentum.
 
+Perhaps this review would've scraped up a fifth star if I could remember the face of my mother...oh well.
 
-
-
-
-
-
-
+---
 
 
 
@@ -209,3 +222,10 @@ The shrimp was delicious, and I recommend head on, as it carries a pertinent ban
 
 # Origin Story:
 They say love at first sight doesn't exist, but my taste buds tell a different tale. It all began September 18, 1973. It was a damp autumn evening, and a neon sign illuminated the sidewalk. The wind's whisper ran through the trees as a savory aroma beckoned me. I followed, and I was led to the welcoming doors of a local restaurant. As I entered, my disposition quivered. Little did I know, the contents of my plate would fill the hole in my heart and become my life's bride. From that moment forward, I knew what I was born to do, and the rest is history. You never know what muddy clam might yield the greatest of pearls.
+
+
+
+# Links (Some reviews taken down)
+[Google Maps Reviews](https://www.google.com/maps/contrib/113423845594581218917/reviews/@40.976675,-127.1709371,5z/data=!3m1!4b1!4m3!8m2!3m1!1e1?entry=ttu&g_ep=EgoyMDI0MDkxMS4wIKXMDSoASAFQAw%3D%3D)
+
+[Yelp Reviews](https://www.yelp.com/user_details?userid=HSqSQ_ACyAg77IJEJueavQ)
