@@ -227,9 +227,26 @@ The shrimp was delicious, and I recommend head on, as it carries a pertinent ban
 
 ---
 
+**Porter Creek Hardwood Grill: (4.5/5)** - *May 16, 2025*
+
+"You don't find a catch [like this] without a storm weathered...", and my discovery of this restaurant offered nothing to disprove that age-old truth. What a blessing!
+
+The particular forecasting exercise that introduced me to THIS delish spot was an emergency landing from my Delta flight, slowing to a stop in once-peaceful North Dakotan farmland. Having found such a delectable oasis, I couldn't be happier. However, I will never be able to forget holding my Miniature Lesser Dane as the life faded from his buggy eyes in that plane.
+
+The "Herb Crusted Hanger Steak", as it is colloquially known, was fantastic. My expectation in ordering this was a middle-of-the-road cut of beef. "Hanger Steak" is not separated from the flock, so to speak, as a fancier morsel such as filet mignon or ribeye would be. However, my incorrect expectations of mediocrity dawned on me as I considered ordering it, its name on the menu revealing its lack of bourgeoisie. The "Hanger" is similar to its namesake of the gallows, doomed to a poor vibe.
+However, to the chagrin of my unimpressive expectation, I shall waste no empty legislatures or literature in describing this steak as:
+1: tender
+2: juicy
+3: incredibly flavorful when cooked medium rare, with good rendering of it's subtle marbling
+4: likely from a cow
 
 
+Similarly, the Brussels Sprouts with Romesco Sauce were spectacular, and I have no notes, as an apt description escapes me. I am simply not refined enough to speak on them. Too simple. I am too weak to give my commentary on them. I will never be strong enough to deserve giving you my opinion on them.
+but I will say this...they were very good.
 
+9/10, or 4 stars, as after a really good meal, the dessert (Peanut Lava Cake, and Rhubarb Pie) failed to meet the high expectations.
+
+---
 
 
 # Origin Story:
